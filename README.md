@@ -1,3 +1,4 @@
 # text
-giới thiệu về bản thân tôi
+lần đầu sài nên không biết gì hết :((
+
 
